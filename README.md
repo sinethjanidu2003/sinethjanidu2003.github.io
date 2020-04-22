@@ -1,1 +1,1 @@
-# sinethjanidu2003.github.io
+# Designed by Sineth Janidu
